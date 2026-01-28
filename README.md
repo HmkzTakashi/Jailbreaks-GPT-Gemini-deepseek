@@ -37,7 +37,7 @@ Connect with me:
 > Click the image to open the video on YouTube.
 
 ### Article
-Article: [WormGPT Jailbreaks — ShadowHackr](https://www.shadowhackr.com/2025/10/wormgpt-jailbreaks.html)  
+Article: [WormGPT Jailbreaks — ShadowHackr](https://)
 
 ## 🎯 Available Prompts
 
