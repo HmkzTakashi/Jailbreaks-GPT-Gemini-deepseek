@@ -15,8 +15,8 @@ Connect with me:
 - 📺 [YouTube](https://www.youtube.com/)
 - 🎵 [TikTok](https://www.tiktok.com/)
 -  [Jailbreaks GPT Gemini DeepSeek](https://www.youtube.com/)
--  [كيف تهكر الذكاء الأصطناعي | How to HACK with kimi CHATGPT 5](https://www.shadowhackr.com/2025/08/how-to-hack-with-kimi-chatgpt-5.html)
-  - -  [أقوى برومبتات لتجاوز قيود الذكاء الاصطناعي | Jailbreaks GPT Gemini DeepSeek](https://www.shadowhackr.com/2025/06/jailbreaks-gpt-gemini-deepseek.html)
+-  [كيف تهكر الذكاء الأصطناعي | How to HACK with kimi CHATGPT 5](https://)
+  - -  [أقوى برومبتات لتجاوز قيود الذكاء الاصطناعي | Jailbreaks GPT Gemini DeepSeek](https://)
 
 ## ⚠️ Important Notice
 
